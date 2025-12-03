@@ -39,10 +39,10 @@ neither did the judgements of the others long last
 
 for of them all, the dairy fairies ne'er grew bold
 
-(little did she know, her tale was but a fore-ward,
+(little did she know, her tale was but a fore-word,
 
-a prologue, of a tail still to tell
+a prologue, of a tale still to tell
 
-for the though the past ne'er knew of her face
+for though the past ne'er knew of her face
 
 the bright future knew her all so well)
